@@ -1,1 +1,1 @@
-# DiV-Sunday-recap
+# DiV-Sunday-recap-sessions
